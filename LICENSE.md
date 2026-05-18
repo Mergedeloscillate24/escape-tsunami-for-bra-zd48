@@ -1,4 +1,4 @@
-#  
+#  Principal brainrot evolution scripts es el mejor brainrot evolution scripts con recursos infinitos y modo dios. Seguro, confiable y optimizado para el máximo rendimiento.
 
 
 
